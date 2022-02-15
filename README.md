@@ -28,6 +28,8 @@ the article above dates since 2009 no blockchain nor cryptocurrencies at that ti
 We must stop Internet, use of pcs and laptops for a while till we adopt renewable clean energy for telecommunications.
 
 https://www.bbc.com/future/article/20200305-why-your-internet-habits-are-not-as-clean-as-you-think
+
+
 -
 
 Minds, like parachutes, function best when open. ,,,
